@@ -25,4 +25,4 @@ Official Channels
 * Discord: https://discord.gg/8pACkSZj
 * Telegram: https://t.me/officialaoulink
 
-#AOULINK #Blockchain #Web3 #Roadshow #FutureOfFinance<img width="468" height="410" alt="image" src="https://github.com/user-attachments/assets/7f274eb8-7657-42ba-8220-04f04d7c5fa3" />
+#AOULINK #Blockchain #Web3 #Roadshow #FutureOfFinance
